@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ronelle
-- 👀 I’m interested in the study of healthcare 
+- 👀 I’m interested in the study of the analytics of workforce development, healthcare operations management and community impact   
 - 🌱 I’m currently learning Github
 - 💞️ I’m looking to collaborate on Reasearch Topics for social economical development
 - 📫 How to reach me at the University of South Alabama
